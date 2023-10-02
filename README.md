@@ -1,11 +1,11 @@
-hallo ik ben christian haan.
+hallo ik ben christian haan.👋
 ik ben 16 jaar op het moment van het maken.
-ik zit in SD1B op het media collage in amsterdam.
+ik zit in SD1B op het media collage in amsterdam.🏫
 
 
 ik maak deze opdracht omdat ik voor school een eind opdracht moet maken en ik heb gekeuzen of een interactief verhaal waar u zelf de keuzes maakt en dus bepaalt hoe het verhaal verloopt.
 
-het verhaal gaat over dat jij hede dages keuzes moet maken zoals of je in bed blijft liggen of je gaat boodschappen doen en wat je moet gaan halen in de winkel enzovoort. je krijgt het idee wel hoop ik van ik probeer te maken.
+het verhaal gaat over dat jij hede dages keuzes moet maken zoals of je in bed🛏️ blijft liggen of je gaat boodschappen🏪 doen en wat je moet gaan halen🛍️ in de winkel enzovoort. je krijgt het idee wel hoop ik van ik probeer te maken.
 als u nog toevoegingen hebt of tips mag u gerust een comment maken bij het stuk waar u een toevoeging voor hebt of een tip en dan zal ik kijken of ik die zou willen toevoegen.
 
 de link van mijn lucidchart:
