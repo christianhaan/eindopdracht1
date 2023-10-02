@@ -9,6 +9,7 @@ het verhaal gaat over dat jij hede dages keuzes moet maken zoals of je in bed bl
 als u nog toevoegingen hebt of tips mag u gerust een comment maken bij het stuk waar u een toevoeging voor hebt of een tip en dan zal ik kijken of ik die zou willen toevoegen.
 
 de link van mijn lucidchart:
+
 https://lucid.app/lucidchart/5d82e06f-c730-4b2b-8ad5-81ba4b4c8809/edit?invitationId=inv_aed291dd-4f48-471f-abd4-06f31d3ca823
 dat is mijn lucidchart waar ik de rode draad van mijn verhaal hebt bedacht en uitgewerkt en dus ook waarik vooral bij blijf afentoe zou er misschien iets afwijken maar dat komt dan doordat ik iets bedenk terwijl ik het programma aan het maken ben.
 
