@@ -1,5 +1,7 @@
 hallo ik ben christian haan.👋
+
 ik ben 16 jaar op het moment van het maken.
+
 ik zit in SD1B op het media collage in amsterdam.🏫
 
 
